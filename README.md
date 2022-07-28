@@ -1,0 +1,2 @@
+# MitSoft
+Barcha amaliyot kodlar
